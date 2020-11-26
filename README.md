@@ -1,5 +1,8 @@
 # hinami-chi-skins
 
+# [TaskuSkin v7 hinami-chi edit.osk](https://1drv.ms/u/s!AgTOhQ7V3TN8jmQc5PXpJ2iCcf6N?e=lAPBZc)
+![](https://i.imgur.com/ncdqOep.png)
+
 # [hinami-chi v1.3.2](https://1drv.ms/u/s!AgTOhQ7V3TN8jlj16T-UhcTMx5us)
 ![](https://i.imgur.com/KOCSsUn.png)
 

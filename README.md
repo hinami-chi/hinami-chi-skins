@@ -10,7 +10,7 @@ Changelog:
 + old hitcircles
 + default changed (hitcircle number)
 + sliderfollowcircle = invisible
-+ SDLG osu peru [selection-options.png](https://i.ibb.co/JvPw356/selection-options.png)
++ SDLG dota osu peru [selection-options.png](https://i.ibb.co/JvPw356/selection-options.png)
 
 ![](https://i.imgur.com/WfoiiOH.png)
 

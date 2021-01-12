@@ -4,6 +4,7 @@ IF ANY ZELDA IS NOT WORKING PLEASE TELL ME FOR FIX IT :V
 
 # [hinami-chi v1.3.3](https://1drv.ms/u/s!AgTOhQ7V3TN8jmdK_89onKDw9tHh?e=phrxxF)
 Changelog:
++ sliderb0 changed
 + hitsounds changed
 + old yellow cursor
 + old hitcircles
@@ -16,7 +17,7 @@ Changelog:
 
 # [Rafis DT hinami-chi edit (DT AR10.3 skin)](https://1drv.ms/u/s!AgTOhQ7V3TN8jmZI578RoBR0GeHk?e=eoXON4)
 Changelog:
-+ sliderb0.png
++ sliderb0.png v1.3.3
 + sliderfollowcircle = invisible
 + SliderBorder: 253,199,244; SliderTrackOverride: 8,5,23
 + old yellow cursor
@@ -28,7 +29,7 @@ Changelog:
 
 # [Arnold24x24 hinami-chi edit (HD skin)](https://1drv.ms/u/s!AgTOhQ7V3TN8jmV_H_aJCYzQRarw?e=RLdK4C)
 Changelog:
-+ sliderb0.png
++ sliderb0.png v1.3.3
 + sliderfollowcircle = invisible
 + SliderBorder: 253,199,244; SliderTrackOverride: 8,5,23
 + old yellow cursor

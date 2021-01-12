@@ -5,10 +5,11 @@ IF ANY ZELDA IS NOT WORKING PLEASE TELL ME FOR FIX IT :V
 # [hinami-chi v1.3.3](https://1drv.ms/u/s!AgTOhQ7V3TN8jmdK_89onKDw9tHh?e=phrxxF)
 
 Changelog:
-(+) hitsounds changed
-(+) cursor changed (old yellow cursor)
-(+) old hitcircles
++ hitsounds changed
+cursor changed (old yellow cursor)
+old hitcircles
 (+) default changed (hitcircle number)
+(+) sliderfollowcircle = invisible
 
 ![](https://i.imgur.com/WfoiiOH.png)
 

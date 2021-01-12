@@ -10,7 +10,8 @@ Changelog:
 + old hitcircles
 + default changed (hitcircle number)
 + sliderfollowcircle = invisible
-+ SDLG osu peru selection-options.png(https://i.ibb.co/JvPw356/selection-options.png)
++ SDLG osu peru [selection-options.png](https://i.ibb.co/JvPw356/selection-options.png)
+
 ![](https://i.imgur.com/WfoiiOH.png)
 
 # [Rafis DT hinami-chi edit (DT AR10.3 skin)](https://1drv.ms/u/s!AgTOhQ7V3TN8jmZI578RoBR0GeHk?e=eoXON4)

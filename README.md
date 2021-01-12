@@ -6,8 +6,8 @@ IF ANY ZELDA IS NOT WORKING PLEASE TELL ME FOR FIX IT :V
 
 Changelog:
 + hitsounds changed
-cursor changed (old yellow cursor)
-old hitcircles
++ cursor changed (old yellow cursor)
++ old hitcircles
 (+) default changed (hitcircle number)
 (+) sliderfollowcircle = invisible
 

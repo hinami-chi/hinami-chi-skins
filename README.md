@@ -11,6 +11,7 @@ Changelog:
 + default changed (hitcircle number)
 + sliderfollowcircle = invisible
 + SDLG dota osu peru [selection-options.png](https://i.ibb.co/JvPw356/selection-options.png)
++ rafis spinner
 
 ![](https://i.imgur.com/WfoiiOH.png)
 

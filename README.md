@@ -2,6 +2,10 @@
 
 IF ANY ZELDA IS NOT WORKING PLEASE TELL ME FOR FIX IT :V
 
+# [hinami-chi DT high AR](https://1drv.ms/u/s!AgTOhQ7V3TN8jmlFcseHavyd_z5J?e=i5GUJU)
+
+![](https://i.imgur.com/QHkG69N.png)
+
 # [hinami-chi v1.3.4](https://1drv.ms/u/s!AgTOhQ7V3TN8jmiV92XgK6AOhwAV?e=s6yt3J)
 Changelog: 
 + ranking.png changed (zeluaR letters rank)

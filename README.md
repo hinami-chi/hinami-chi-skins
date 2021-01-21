@@ -7,8 +7,7 @@ Changelog:
 + ranking.png changed (zeluaR letters rank)
 + cursor.png [changed](https://i.imgur.com/xYqCgIG.png) ; cursortrail.png invisible
 + play-skip.png [changed](https://cdn.discordapp.com/attachments/787140086151774248/801878314431283270/play-skip.png)
-+ SliderBorder: 51,101,150
-+ SliderTrackOverride: 0,0,30
++ SliderBorder: 51,101,150 ; SliderTrackOverride: 0,0,30
 
 ![](https://i.imgur.com/T7vZ859.png)
 

@@ -84,3 +84,6 @@ z
 
 # [hinami-chi's v1.1](https://iz7xqg.by.files.1drv.com/y4m2NoO69UpVWw8CjHxyx-vtWCWy5JxR6LPHD5UT0bMXrjVtGq-jM2oJBw7xEFd884F7fIyulJ6pXrfHKwxZqvx4t7Z5J3P5FGFtMrINYhGBxcm0aJ6njgrWnlaLSC3abuUa9fSssN3K-d0JjnO9GBEjIgSKA87WWesjpegXA_uziqZXh_xWQBK1YrGL8sWMIjcsQSN9V63W-AOcTNi6a8l7Q)
 ![](https://i.imgur.com/WO0FfZN.png)
+
+# [azerinne v1.11](https://osuskins.net/download/4VdSW3w)
+![](https://osuskins.net/screenshots/4VdSW3w.jpg)

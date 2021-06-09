@@ -3,7 +3,7 @@
 IF ANY ZELDA IS NOT WORKING PLEASE TELL ME FOR FIX IT :V
 
 # [hinami-chi v1.4](https://1drv.ms/u/s!AgTOhQ7V3TN8jwWB5ljSK8Uf2vot?e=6yvKUN)
-![](https://prnt.sc/14tgv7y)
+![](https://i.ibb.co/YBL1w5L/download.png)
 
 # [hinami-chi v4.0](https://1drv.ms/u/s!AgTOhQ7V3TN8jmrLsYVw1jFvA_JY?e=5czFVy)
 ![](https://i.imgur.com/c9H0rE4.png)

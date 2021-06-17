@@ -2,6 +2,9 @@
 
 IF ANY ZELDA IS NOT WORKING PLEASE TELL ME FOR FIX IT :V
 
+# [hinami-chi v1.4.1](https://1drv.ms/u/s!AgTOhQ7V3TN8jwYwg2dCRbW9z8M3?e=d6uK1e)
+![](https://media.discordapp.net/attachments/854414132517928967/855111451593277440/unknown.png)
+
 # [hinami-chi v1.4](https://1drv.ms/u/s!AgTOhQ7V3TN8jwWB5ljSK8Uf2vot?e=6yvKUN)
 ![](https://i.ibb.co/YBL1w5L/download.png)
 

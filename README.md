@@ -76,7 +76,7 @@ Changelog:
 # [VaxeiEZHD](https://github.com/hinami-chi/hinami-chi-skins/raw/main/osk/VaxeiEZHD.osk)
 ![](https://i.imgur.com/P3DDxtL.png)
 
-# [hinami-chi v3.0](https://github.com/hinami-chi/hinami-chi-skins/raw/main/osk/hinami-chi%20v3.0.osk)
+# [hinami-chi v3.0](https://github.com/hinami-chi/hinami-chi-skins/raw/main/osk/hinami-chi's%20v3.0.osk)
 ![](https://i.imgur.com/K5hTrmh.png)
 
 # [hinami-chi v2.2](https://github.com/hinami-chi/hinami-chi-skins/raw/main/osk/hinami-chi%20v2.2.osk)

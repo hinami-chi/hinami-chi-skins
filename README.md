@@ -37,7 +37,7 @@ Changelog:
 
 ![](https://i.imgur.com/WfoiiOH.png)
 
-# [Rafis DT hinami-chi edit (DT AR10.3 skin)](https://github.com/hinami-chi/hinami-chi-skins/raw/main/osk/)
+# [Rafis DT hinami-chi edit (DT AR10.3 skin)](https://1drv.ms/u/c/7c33ddd50e85ce04/EQTOhQ7V3TMggHxmBwAAAAABl7NZZ0ac_OuuIyJnOpeACA?e=9Nek5s)
 Changelog:
 + sliderb0.png v1.3.3
 + sliderfollowcircle = invisible

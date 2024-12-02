@@ -3,7 +3,7 @@
 IF ANY ZELDA IS NOT WORKING PLEASE TELL ME FOR FIX IT :V
 
 # [hinami-chi v1.4.1](https://github.com/hinami-chi/hinami-chi-skins/raw/main/osk/hinami-chi%20v1.4.1.osk)
-![](https://media.discordapp.net/attachments/854414132517928967/855111451593277440/unknown.png)
+![](https://i.imgur.com/YYhv6Nd.png)
 
 # [hinami-chi v1.4](https://github.com/hinami-chi/hinami-chi-skins/raw/main/osk/hinami-chi%20v1.4.osk)
 ![](https://i.ibb.co/YBL1w5L/download.png)

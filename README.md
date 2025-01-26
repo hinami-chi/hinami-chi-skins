@@ -1,6 +1,8 @@
 # hinami-chi-skins
 
 IF ANY ZELDA IS NOT WORKING PLEASE TELL ME FOR FIX IT :V
+# [azerino Potofu HR white hitsounds 2025-01-26 18:59.osk](https://drive.google.com/file/d/1XW6OouKBcHrmCbjbvdOb12sn3tmjE70k/view?usp=drivesdk)
+![](https://i.ibb.co/jTDHnrp/azerino-Potofu-HR-white-hitsounds-2025-01-26-18-59-screenshot.png)
 
 # [hinami-chi v1.4.1](https://github.com/hinami-chi/hinami-chi-skins/raw/main/osk/hinami-chi%20v1.4.1.osk)
 ![](https://i.imgur.com/YYhv6Nd.png)

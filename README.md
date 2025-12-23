@@ -6,15 +6,6 @@ IF ANY ZELDA IS NOT WORKING PLEASE TELL ME FOR FIX IT :V
 # [hinami-chi's v1.1 2025-12-15 22:16.osk.osk](https://drive.google.com/file/d/1GPScGXoIQgEBXTqLAKObYDxNEqf6rMpL/view?usp=drivesdk)
 ![](img/hinami-chi_s%20v1.1%202025-12-15%2022_16.osk.jpg)
 
-# [hinami-chi's v1.1 2025-12-05 21:14.osk.osk](https://drive.google.com/file/d/18fhg-2Vfy9WWASr5JyDGqivqagmdZlhS/view?usp=drivesdk)
-![](img/hinami-chi_s%20v1.1%202025-12-05%2021_14.jpg)
-
-# [hinami-chi's v1.1 2025-12-05 21:14.osk.osk](https://drive.google.com/file/d/1pt74gZ0AAS0jqIX8Q1Tk1uJOhDcwtESK/view?usp=drivesdk)
-![](img/hinami-chi_s%20v1.1%202025-12-05%2021_14.jpg)
-
-# [hinami-chi's v1.1 2025-12-05 18:35.osk.osk](https://drive.google.com/file/d/1-MoJyLO5amNe4-eJtuoT_uxlnygZoWkP/view?usp=drivesdk)
-![](img/hinami-chi_s%20v1.1%202025-12-05%2018_35.jpg)
-
 # [hinami-chi's v1.1 2025-12-04 19:40.osk](https://drive.google.com/file/d/1pJOFcsJLWpC4xT88fVD6rGg09_KgtTOx/view?usp=drivesdk)
 ![](img/hinami-chi_s%20v1.1%202025-12-04%2019_40.jpg)
 

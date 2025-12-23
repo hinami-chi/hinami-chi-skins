@@ -36,22 +36,92 @@ IF ANY ZELDA IS NOT WORKING PLEASE TELL ME FOR FIX IT :V
 # [+hinami-chi's v5.0+ 2025-10-07 00:01.osk](https://drive.google.com/file/d/17-CG7CRAXkuiL9kS9HxThlMkjSU4jhx1/view?usp=drivesdk)
 ![](img/+hinami-chi_s%20v5.0+%202025-10-07%2000_01.jpg)
 
+# [hinami-chi's v3.1 2025-09-21 12:29.osk](https://drive.google.com/drive/folders/19QmmP7DTI1yNsr-K4JN9KtHnMoKdqDg3)
+![](img/hinami-chi_s%20v3.1%202025-09-21%2012_29.jpg)
+
 # [azerino Potofu 2.12 2025-09-14 00:04.osk](https://drive.google.com/file/d/1YCtI14OYPZKh5n8aplUa0pztwMvm3svO/view?usp=drivesdk)
 ![](img/azerino%20Potofu%202.12%202025-09-14%2000_04.jpg)
+
+# [azerino Potofu 2.12 2025-09-06 21:46.osk](https://drive.google.com/drive/folders/19QmmP7DTI1yNsr-K4JN9KtHnMoKdqDg3)
+![](img/azerino%20Potofu%202.12%202025-09-06%2021_46.jpg)
+
+# hinami-chi_s v3.1 ez gordo 2025-06-09
+![](img/hinami-chi_s%20v3.1%20ez%20gordo.jpg)
+
+# [hinami-chi's v3.1 hr nm 2025-06-11 13:43.osk](https://drive.google.com/drive/folders/19QmmP7DTI1yNsr-K4JN9KtHnMoKdqDg3)
+![](img/hinami-chi_s%20v3.1%20hr%20nm%202025-06-11%2013_43.jpg)
 
 # [hinami-chi's v3.1 hr nm gordo 2025-05-31 14:20.osk](https://drive.google.com/file/d/1fk2Wltsh-zDuyO7U5eKGtbEumi3gmGhM/view?usp=drivesdk)
 ![](img/hinami-chi_s%20v3.1%20hr%20nm%20gordo%202025-05-31%2014_20.jpg)
 
+# hinami-chi_s v3.1 cursor gordo 2025-04-11
+![](img/hinami-chi_s%20v3.1%20cursor%20gordo.jpg)
+
 # [hinami-chi's v3.1 2025-03-17 23:37.osk](https://drive.google.com/file/d/12IJp-lDICs9opFtnna0EvA1sDc6rUFpI/view?usp=drivesdk)
 ![](img/hinami-chi_s%20v3.1%202025-03-17%2023_37.jpg)
+
+# Azurondres 2 2025-02-11
+![](img/Azurondres%202.jpg)
 
 # [azerino Potofu 2.1 2025-02-02 23:35.osk](https://drive.google.com/file/d/1eLWrCeakXbDbG5UZMmd3fsDxcp5rBiGl/view?usp=drivesdk)
 ![](img/azerino%20Potofu%202.1%202025-02-02%2023_35.jpg)
 
-
-
 # [azerino Potofu HR white hitsounds 2025-01-26 18:59.osk](https://drive.google.com/file/d/1XW6OouKBcHrmCbjbvdOb12sn3tmjE70k/view?usp=drivesdk)
-![](https://i.ibb.co/jTDHnrp/azerino-Potofu-HR-white-hitsounds-2025-01-26-18-59-screenshot.png)
+![](img/azerino%20Potofu%20HR%20white%20hitsounds%202025-01-26%2018_59.jpg)
+
+# azerino Potofu HR white 2025-01-26 12:44.osk
+![](img/azerino%20Potofu%20HR%20white%202025-01-26%2012_44.jpg)
+
+# [hinami-chi's v3.1 2025-01-19 21:57.osk](https://drive.google.com/drive/folders/19QmmP7DTI1yNsr-K4JN9KtHnMoKdqDg3)
+![](img/hinami-chi_s%20v3.1%202025-01-19%2021_57.jpg)
+
+# [hinami-chi_s v3.1 2024-11-18 17:54.osk](https://drive.google.com/drive/folders/19QmmP7DTI1yNsr-K4JN9KtHnMoKdqDg3)
+![](img/hinami-chi_s%20v3.1%202024-11-18%2017_54.jpg)
+
+# Potofu 2024-11-07
+![](img/Potofu.jpg)
+
+# [azerino Potofu 2.1 yellow 2024-11-05 02:58.osk](https://drive.google.com/drive/folders/19QmmP7DTI1yNsr-K4JN9KtHnMoKdqDg3)
+![](img/azerino%20Potofu%202.1%20yellow%202024-11-05%2002-58.jpg)
+
+# indekusu 2024-11-02
+![](img/indekusu.jpg)
+
+# [Prawilnosc+v+998+DT 2024-10-20 15:04.osk](https://drive.google.com/drive/folders/19QmmP7DTI1yNsr-K4JN9KtHnMoKdqDg3)
+![](img/-%20Prawilnosc+v+998+DT%202024-10-20%2015-04.jpg)
+
+# [hinami-chi nahida skin AR 2024-10-03 20:54.osk](https://drive.google.com/drive/folders/19QmmP7DTI1yNsr-K4JN9KtHnMoKdqDg3)
+![](img/hinami-chi%20nahida%20skin%20AR%202024-10-03%2020_54.jpg)
+
+# [hinami-chi nahida skin 2024-09-21 23:32.osk](https://drive.google.com/drive/folders/19QmmP7DTI1yNsr-K4JN9KtHnMoKdqDg3)
+![](img/hinami-chi%20nahida%20skin%202024-09-21%2023_32.jpg)
+
+# [hinami-chi nahida skin 2024-09-15 23:46.osk](https://drive.google.com/drive/folders/19QmmP7DTI1yNsr-K4JN9KtHnMoKdqDg3)
+![](img/hinami-chi%20nahida%20skin%202024-09-15%2023_46.jpg)
+
+# [hinami edit (Siiphs skin) 2024-08-28 23:40.osk](https://drive.google.com/drive/folders/19QmmP7DTI1yNsr-K4JN9KtHnMoKdqDg3)
+![](img/hinami%20edit%20(Siiphs%20skin)%202024-08-28%2023_40.jpg)
+
+# [hinami-chi_s v1.1 edit 2024-08-10 23:58.osk](https://drive.google.com/drive/folders/19QmmP7DTI1yNsr-K4JN9KtHnMoKdqDg3)
+![](img/hinami-chi_s%20v1.1%20edit%202024-08-10%2023_58.jpg)
+
+# [azerino Potofu 2.3 2024-07-21 20:56.osk](https://drive.google.com/drive/folders/19QmmP7DTI1yNsr-K4JN9KtHnMoKdqDg3)
+![](img/azerino%20Potofu%202.3%202024-07-21%2020_56.jpg)
+
+# [a+Nahida+Skin v0.1 2024-05-12 20:20.osk](https://drive.google.com/drive/folders/19QmmP7DTI1yNsr-K4JN9KtHnMoKdqDg3)
+![](img/a+Nahida+Skin%20v0.1%202024-05-12%2020_20.jpg)
+
+# [azerino Potofu 2.3 2024-05-11 21:26.osk](https://drive.google.com/drive/folders/19QmmP7DTI1yNsr-K4JN9KtHnMoKdqDg3)
+![](img/azerino%20Potofu%202.3%202024-05-11%2021_26.jpg)
+
+# [WWW v1.6 2024-05-11 18:38.osk](https://drive.google.com/drive/folders/19QmmP7DTI1yNsr-K4JN9KtHnMoKdqDg3)
+![](img/WWW%20v1.6%202024-05-11%2018_38.jpg)
+
+# [hinami-chi_s v1.1 2024-05-10 22:50.osk](https://drive.google.com/drive/folders/19QmmP7DTI1yNsr-K4JN9KtHnMoKdqDg3)
+![](img/hinami-chi_s%20v1.1%202024-05-10%2022_50.jpg)
+
+# [dddddomgforz 2024-05-07 21:19.osk](https://drive.google.com/drive/folders/19QmmP7DTI1yNsr-K4JN9KtHnMoKdqDg3)
+![](img/dddddomgforz%202024-05-07%2021_19.jpg)
 
 # [hinami-chi v1.4.1](https://github.com/hinami-chi/hinami-chi-skins/raw/main/osk/hinami-chi%20v1.4.1.osk)
 ![](https://i.imgur.com/YYhv6Nd.png)

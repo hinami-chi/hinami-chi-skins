@@ -3,6 +3,61 @@
 IF ANY ZELDA IS NOT WORKING PLEASE TELL ME FOR FIX IT :V
 
 # [my drive with latests skins](https://drive.google.com/drive/folders/19QmmP7DTI1yNsr-K4JN9KtHnMoKdqDg3)
+# [hinami-chi's v1.1 2025-12-15 22:16.osk.osk](https://drive.google.com/file/d/1GPScGXoIQgEBXTqLAKObYDxNEqf6rMpL/view?usp=drivesdk)
+![](img/hinami-chi_s%20v1.1%202025-12-15%2022_16.osk.jpg)
+
+# [hinami-chi's v1.1 2025-12-05 21:14.osk.osk](https://drive.google.com/file/d/18fhg-2Vfy9WWASr5JyDGqivqagmdZlhS/view?usp=drivesdk)
+![](img/hinami-chi_s%20v1.1%202025-12-05%2021_14.jpg)
+
+# [hinami-chi's v1.1 2025-12-05 21:14.osk.osk](https://drive.google.com/file/d/1pt74gZ0AAS0jqIX8Q1Tk1uJOhDcwtESK/view?usp=drivesdk)
+![](img/hinami-chi_s%20v1.1%202025-12-05%2021_14.jpg)
+
+# [hinami-chi's v1.1 2025-12-05 18:35.osk.osk](https://drive.google.com/file/d/1-MoJyLO5amNe4-eJtuoT_uxlnygZoWkP/view?usp=drivesdk)
+![](img/hinami-chi_s%20v1.1%202025-12-05%2018_35.jpg)
+
+# [hinami-chi's v1.1 2025-12-04 19:40.osk](https://drive.google.com/file/d/1pJOFcsJLWpC4xT88fVD6rGg09_KgtTOx/view?usp=drivesdk)
+![](img/hinami-chi_s%20v1.1%202025-12-04%2019_40.jpg)
+
+# [- [Ryosuke + KecHik445] Kamui HQ 2025-11-30 16:38.osk](https://drive.google.com/file/d/1wWahbLnxuyYf3kJWFpsdKq74AwLNIfvz/view?usp=drivesdk)
+![](img/%5BRyosuke%20+%20KecHik445%5D%20Kamui%20HQ%202025-11-30%2016_38.jpg)
+
+# [- [Ryosuke + KecHik445] Kamui HQ 2025-11-30 13:15.osk](https://drive.google.com/file/d/1ZCbheqW5zOXhxQsvRadWBswkAqEsrhUH/view?usp=drivesdk)
+![](img/%5BRyosuke%20+%20KecHik445%5D%20Kamui%20HQ%202025-11-30%2013_15.jpg)
+
+# [Sakura Card Captor -Skin-By Lulu-Lala 2025-11-30 13:06.osk](https://drive.google.com/file/d/13gMlDJbD6l51Le3WUXy5UNvZZJd1gjUd/view?usp=drivesdk)
+![](img/Sakura%20Card%20Captor%20-Skin-By%20Lulu-Lala%202025-11-30%2013_06.jpg)
+
+# [ur4ra+skin+cocoro 2025-11-30 13:02.osk](https://drive.google.com/file/d/1jj2BOyeLoGGpuir-TEvmy_e9fWyLlQiq/view?usp=drivesdk)
+![](img/ur4ra+skin+cocoro%202025-11-30%2013_02.jpg)
+
+# [amatarasu skin 2025-11-30 13:01.osk](https://drive.google.com/file/d/1pRdi3-6-5sH4RuNXaJhUqzvk0L5Gb3tp/view?usp=drivesdk)
+![](img/amatarasu%20skin%202025-11-30%2013_01.jpg)
+
+# [Heatherfield 2025-11-30 12:58.osk](https://drive.google.com/file/d/14wA5wdqyLJBalWaZdt9ZkjuTWlZUbTXN/view?usp=drivesdk)
+![](img/Heatherfield%202025-11-30%2012_58.jpg)
+
+# [hinami-chi's v1.1 2025-11-26 21:22.osk](https://drive.google.com/file/d/1lLUiAOL9Eds6-E5ais3lnx8HT4OSAJDu/view?usp=drivesdk)
+![](img/hinami-chi_s%20v1.1%202025-11-26%2021_22.jpg)
+
+# [hinami-chi's v1.1 2025-11-21 22:55.osk](https://drive.google.com/file/d/1xp6TpCUSMqPSqE5Ip2pdUiueK2NC1-j3/view?usp=drivesdk)
+![](img/hinami-chi_s%20v1.1%202025-11-21%2022_55.jpg)
+
+# [+hinami-chi's v5.0+ 2025-10-07 00:01.osk](https://drive.google.com/file/d/17-CG7CRAXkuiL9kS9HxThlMkjSU4jhx1/view?usp=drivesdk)
+![](img/+hinami-chi_s%20v5.0+%202025-10-07%2000_01.jpg)
+
+# [azerino Potofu 2.12 2025-09-14 00:04.osk](https://drive.google.com/file/d/1YCtI14OYPZKh5n8aplUa0pztwMvm3svO/view?usp=drivesdk)
+![](img/azerino%20Potofu%202.12%202025-09-14%2000_04.jpg)
+
+# [hinami-chi's v3.1 hr nm gordo 2025-05-31 14:20.osk](https://drive.google.com/file/d/1fk2Wltsh-zDuyO7U5eKGtbEumi3gmGhM/view?usp=drivesdk)
+![](img/hinami-chi_s%20v3.1%20hr%20nm%20gordo%202025-05-31%2014_20.jpg)
+
+# [hinami-chi's v3.1 2025-03-17 23:37.osk](https://drive.google.com/file/d/12IJp-lDICs9opFtnna0EvA1sDc6rUFpI/view?usp=drivesdk)
+![](img/hinami-chi_s%20v3.1%202025-03-17%2023_37.jpg)
+
+# [azerino Potofu 2.1 2025-02-02 23:35.osk](https://drive.google.com/file/d/1eLWrCeakXbDbG5UZMmd3fsDxcp5rBiGl/view?usp=drivesdk)
+![](img/azerino%20Potofu%202.1%202025-02-02%2023_35.jpg)
+
+
 
 # [azerino Potofu HR white hitsounds 2025-01-26 18:59.osk](https://drive.google.com/file/d/1XW6OouKBcHrmCbjbvdOb12sn3tmjE70k/view?usp=drivesdk)
 ![](https://i.ibb.co/jTDHnrp/azerino-Potofu-HR-white-hitsounds-2025-01-26-18-59-screenshot.png)

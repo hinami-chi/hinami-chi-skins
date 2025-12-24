@@ -102,7 +102,7 @@ IF ANY ZELDA IS NOT WORKING PLEASE TELL ME FOR FIX IT :V
 ![](img/hinami%20edit%20(Siiphs%20skin)%202024-08-28%2023_40.jpg)
 
 # [hinami-chi can play hidden yellow 2024-08-28 23:40.osk](https://drive.google.com/file/d/1lBIirWufVd-77YosErBmxnWhCAQ1PzRA/view?usp=sharing)
-![](img/hinami-chi can play hidden yellow 2024-08-28 23:40.osk.jpg)
+![](img/hinami-chi%20can%20play%20hidden%20yellow%202024-08-28%2023:40.osk.jpg)
 
 # [hinami-chi_s v1.1 edit 2024-08-10 23:58.osk](https://drive.google.com/file/d/1ieNNeY1Hs2MkvTUBcFX8SoN-hhGo7SkE/view?usp=sharing)
 ![](img/hinami-chi_s%20v1.1%20edit%202024-08-10%2023_58.jpg)

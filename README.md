@@ -10,7 +10,7 @@ IF ANY ZELDA IS NOT WORKING PLEASE TELL ME FOR FIX IT :V
 ![](img/hinami-chi_s%20v1.1%202025-12-04%2019_40.jpg)
 
 # [- [Ryosuke + KecHik445] Kamui HQ 2025-11-30 16:38.osk](https://drive.google.com/file/d/1wWahbLnxuyYf3kJWFpsdKq74AwLNIfvz/view?usp=drivesdk)
-![](img/- [Ryosuke + KecHik445] Kamui HQ 2025-11-30 16_38.jpg)
+![](img/-%20%5BRyosuke%20%2B%20KecHik445%5D%20Kamui%20HQ%202025-11-30%2016_38.jpg)
 
 # [Sakura Card Captor -Skin-By Lulu-Lala 2025-11-30 13:06.osk](https://drive.google.com/file/d/13gMlDJbD6l51Le3WUXy5UNvZZJd1gjUd/view?usp=drivesdk)
 ![](img/Sakura%20Card%20Captor%20-Skin-By%20Lulu-Lala%202025-11-30%2013_06.jpg)

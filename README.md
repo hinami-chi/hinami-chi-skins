@@ -66,9 +66,6 @@ IF ANY ZELDA IS NOT WORKING PLEASE TELL ME FOR FIX IT :V
 # [azerino Potofu HR white hitsounds 2025-01-26 18:59.osk](https://drive.google.com/file/d/1XW6OouKBcHrmCbjbvdOb12sn3tmjE70k/view?usp=drivesdk)
 ![](img/azerino%20Potofu%20HR%20white%20hitsounds%202025-01-26%2018_59.jpg)
 
-# [azerino Potofu HR white hitsounds 2025-01-26 18:58.osk](https://drive.google.com/file/d/1Y9tauBPDyTm43Bx2aigEwUUlJPmwwzpb/view?usp=drivesdk)
-![](img/azerino%20Potofu%20HR%20white%20hitsounds%202025-01-26%2018_58.jpg)
-
 # [azerino Potofu HR white 2025-01-26 12:44.osk](https://drive.google.com/file/d/1f_siVkDk8a0RxIBgui9O45E22DCY57mO/view?usp=sharing)
 ![](img/azerino%20Potofu%20HR%20white%202025-01-26%2012_44.jpg)
 
@@ -105,7 +102,7 @@ IF ANY ZELDA IS NOT WORKING PLEASE TELL ME FOR FIX IT :V
 ![](img/hinami%20edit%20(Siiphs%20skin)%202024-08-28%2023_40.jpg)
 
 # [hinami-chi can play hidden yellow 2024-08-28 23:40.osk](https://drive.google.com/file/d/1lBIirWufVd-77YosErBmxnWhCAQ1PzRA/view?usp=sharing)
-![]()
+![](img/hinami-chi can play hidden yellow 2024-08-28 23:40.osk.jpg)
 
 # [hinami-chi_s v1.1 edit 2024-08-10 23:58.osk](https://drive.google.com/file/d/1ieNNeY1Hs2MkvTUBcFX8SoN-hhGo7SkE/view?usp=sharing)
 ![](img/hinami-chi_s%20v1.1%20edit%202024-08-10%2023_58.jpg)
@@ -113,8 +110,8 @@ IF ANY ZELDA IS NOT WORKING PLEASE TELL ME FOR FIX IT :V
 # [azerino Potofu 2.3 2024-07-21 20:56.osk](https://drive.google.com/file/d/1rqL2yDR9mfwKh-Pso9khyy9pabe1rXIA/view?usp=sharing)
 ![](img/azerino%20Potofu%202.3%202024-07-21%2020_56.jpg)
 
-# [azerino Potofu 2.3 2024-05-21 22:32.osk](https://drive.google.com/file/d/1rqL2yDR9mfwKh-Pso9khyy9pabe1rXIA/view?usp=sharing)
-![]()
+# [azerino Potofu 2.3 2024-05-21 22:32.osk](https://drive.google.com/file/d/1NpvOK-3mJDiRWmm4eyw9kQbySBWFrtwb/view?usp=sharing)
+![](img/azerino Potofu 2.3 2024-07-21 20:56.osk.jpg)
 
 # [a+Nahida+Skin v0.1 2024-05-12 20:20.osk](https://drive.google.com/file/d/1j8K35RrnwQjlv9rzxpK9r_hmpm5MNqZu/view?usp=drive_link)
 ![](img/a+Nahida+Skin%20v0.1%202024-05-12%2020_20.jpg)

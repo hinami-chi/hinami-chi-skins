@@ -111,7 +111,7 @@ IF ANY ZELDA IS NOT WORKING PLEASE TELL ME FOR FIX IT :V
 ![](img/azerino%20Potofu%202.3%202024-07-21%2020_56.jpg)
 
 # [azerino Potofu 2.3 2024-05-21 22:32.osk](https://drive.google.com/file/d/1NpvOK-3mJDiRWmm4eyw9kQbySBWFrtwb/view?usp=sharing)
-![](img/azerino Potofu 2.3 2024-05-21 22:32.osk.jpg)
+![](img/azerino%20Potofu%202.3%202024-05-21%2022:32.osk.jpg)
 
 # [a+Nahida+Skin v0.1 2024-05-12 20:20.osk](https://drive.google.com/file/d/1j8K35RrnwQjlv9rzxpK9r_hmpm5MNqZu/view?usp=drive_link)
 ![](img/a+Nahida+Skin%20v0.1%202024-05-12%2020_20.jpg)

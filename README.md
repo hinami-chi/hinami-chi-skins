@@ -220,5 +220,5 @@ Changelog:
 # [hinami-chi's v1.1](https://github.com/hinami-chi/hinami-chi-skins/raw/main/osk/hinami-chi's%20v1.1.osk)
 ![](https://i.imgur.com/WO0FfZN.png)
 
-# [azerinne v1.11](https://osuskins.net/download/4VdSW3w)
-![](https://osuskins.net/screenshots/4VdSW3w.jpg)
+# [azerinne v1.11](https://osuskins.net/skin/4VdSW3w)
+![](https://cdn.osuskins.net/screenshots/gameplay-miss/4VdSW3w.webp)
